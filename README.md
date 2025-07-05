@@ -5,10 +5,15 @@
 
 
 Anggota Kelompok
+
 ANGGI SAPUTRA
+
 BERTALIA NAUL
+
 DANTE FRITS
+
 DENNIS ARYA FEBRIAN
+
 Dewa Pragusha
 
 
